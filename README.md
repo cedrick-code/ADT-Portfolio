@@ -12,4 +12,3 @@ Goals in Learning Application Development
 Additional Information
 - Currently studying at St. Michael's College of Iligan Inc.
 - Loves to eat street foods
-- ASDHWHASHDHWAD
